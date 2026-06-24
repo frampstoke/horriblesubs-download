@@ -9,7 +9,7 @@ The **🎬 HorribleSubs Download** is the ultimate batch downloading tool for an
 
 <div align="center">
 
-[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20NOW%20🎬-purple?style=for-the-badge&logo=github)](https://githubs.app/cby0v)
+[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20NOW%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/cby0v)
 
 </div>
 
@@ -97,7 +97,7 @@ When searching for anime downloaders, users encounter countless options—many s
 9. **📁 Set Output Folder** - Where to save downloads
 10. **🚀 Start Download** - Click "Download All" and watch episodes roll in
 
-[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://githubs.app/cby0v)
+[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/cby0v)
 
 ### Quick Start
 
@@ -107,7 +107,7 @@ When searching for anime downloaders, users encounter countless options—many s
 4. **Download** - Click the big blue button
 5. **Enjoy** - Episodes appear in organized folders
 
-[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://githubs.app/cby0v)
+[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/cby0v)
 
 ### Recommended Settings
 
@@ -248,4 +248,4 @@ Our free downloading philosophy means you can start building your collection imm
 
 Join over 5.2 million satisfied anime fans who've transformed their collections with HorribleSubs Download.
 
-[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://githubs.app/cby0v)
+[![Download HorribleSubs Download](https://img.shields.io/badge/🎬%20DOWNLOAD%20HORRIBLESUBS%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/cby0v)
